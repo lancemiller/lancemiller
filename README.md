@@ -2,9 +2,9 @@ Like millions of other programmers, I play electric guitar and write philosophy 
 
 https://lancemiller.org/
 
-Linkedin.com/in/thislancemiller/
+https://www.linkedin.com/in/thislancemiller/
 
-Amazon.com/Lance-Miller/e/B003UQL0O6/
+https://www.amazon.com/Lance-Miller/e/B003UQL0O6/
 
 Email: this.is.lance.miller@gmail.com  
 
