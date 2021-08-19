@@ -1,5 +1,7 @@
 Like millions of other programmers, I play electric guitar and write philosophy and sci-fi. Occasionally I play or write something sort of ok.
 
+https://lancemiller.org/
+
 Linkedin.com/in/thislancemiller/
 
 Amazon.com/Lance-Miller/e/B003UQL0O6/
